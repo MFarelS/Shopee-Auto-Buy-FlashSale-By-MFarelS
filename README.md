@@ -28,3 +28,7 @@ Lalu :
 ```
 
 #### KELAR ~ ~ ~
+
+##### Author : MFarelS
+##### YouTube : MFarelS CH
+##### Instagram : @mfarelsyahtiawan
