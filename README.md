@@ -1,4 +1,4 @@
-# Shopee Auto Buy FlashSale By-MFarelS
+# Shopee Auto Buy FlashSale By MFarelS
 Cuman Prank Mainan Console Log Doang, Wkwk Kena Prank, Siapa Tau Mau Pamer SW wkwk
 
 ## Cara Pasang :
