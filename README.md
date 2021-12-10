@@ -1,4 +1,4 @@
-# Shopee Auto Buy FlashSale By MFarelS Prank, Siapa Tau Mau Pamer SW wkwk
+# Shopee Auto Buy FlashSale By MFarelS 
 
 ## Cara Pasang :
 
